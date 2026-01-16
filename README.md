@@ -1,2 +1,3 @@
-# Kuro-Web
-My very own web
+# Kuro Webbbb
+bro i dont want to code in the web
+its not that good
